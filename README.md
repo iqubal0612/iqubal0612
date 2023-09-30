@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mdasifiqubal321@gmail.com**
 
-- 📄 Know about my experiences [https://tauqeersayeed.github.io/portifolio.github.io/assets/img/tauqeer%20resume%202.pdf](https://tauqeersayeed.github.io/portifolio.github.io/assets/img/tauqeer%20resume%202.pdf)
+- 📄 Know about my experiences .(https://drive.google.com/file/d/1F2_NaLJC_chPSfk05PXaoETH-83Nf8hs/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
